@@ -12,4 +12,4 @@ Selama mengikuti INTRIVIA, aku mendapatkan banyak pengalaman dan pelajaran baru.
 Senang banget bisa jadi bagian dari Cluster 10! Bersyukur bisa ketemu teman-teman yang baik, seru, dan saling membantu satu sama lain. Selain itu, fasilitatornya juga baik dan sabar dalam membimbing kami selama INTRIVIA. Semoga ke depannya Cluster 10 tetap kompak, makin akrab, dan bisa terus saling mendukung selama menjalani perkuliahan di FILKOM UB. Terima kasih sudah menjadi bagian dari cerita awal perkuliahanku yang menyenangkan! 🫶🏻
 
 ## Harapan Kuliah 
-[Tulis harapan kamu di sini] 
+Harapanku selama kuliah di FILKOM UB adalah bisa terus berkembang, baik dalam bidang akademik maupun nonakademik. Aku ingin menjadi pribadi yang lebih mandiri, berani mencoba hal baru, dan mampu menghadapi berbagai tantangan. Semoga aku bisa mendapatkan banyak pengalaman, memperluas relasi, serta menemukan kesempatan untuk mengembangkan kemampuan dan meraih cita-cita. Aku juga berharap bisa menyelesaikan perkuliahan dengan baik dan menjadi pribadi yang bermanfaat bagi orang lain.
